@@ -87,8 +87,7 @@
 ## 📫 Me contacter
 
 - 📧 contact@techtaal.pro
-- 🌐 Portfolio : (à ajouter si dispo)
-- 💼 LinkedIn : (à ajouter)
+- 💼 LinkedIn : www.linkedin.com/in/baye-ousseynou-fall-7a7740183
 
 ---
 
